@@ -28,8 +28,11 @@
 ![Привет, это тусеры!](photo_2022-05-26_23-06-15.jpg)
 
 ## Ссылки
-fox - fan.com
-adultmult.com
+
+xxx.com
+private.com
+brazzers.com
+
 ## Работа с таблицами
 
 ## Цитаты
